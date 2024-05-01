@@ -1,0 +1,1 @@
+# WAP-for-Strong-number
